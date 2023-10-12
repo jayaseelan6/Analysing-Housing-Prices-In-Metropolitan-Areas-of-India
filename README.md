@@ -7,4 +7,4 @@ Analysing house price in Metropolitan areas of India story link-https://public.t
 
 
 
-video link-https://drive.google.com/uc?export=download&id=1Gon6kVzIsj6yLgDdWsY6WbmqrDrQManM
+video link-https://drive.google.com/file/d/1f3Yqd6VqqmuHYzbyrphYOuf42Jitl6BA/view?usp=sharing
